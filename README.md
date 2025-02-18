@@ -2,4 +2,3 @@
 untuk pengerjaan lA nantinya 
 pokoknya semangat
 jangan Mengeluh
-Gacor
